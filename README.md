@@ -1,0 +1,1 @@
+# HydroSolaris.AeroDome.ITM.Mecatr-nica
